@@ -1,1 +1,1 @@
-# learn_gitn okydgbcbcbcb bnbcn nc 
+# learn_gi patrick
